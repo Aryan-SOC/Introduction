@@ -71,7 +71,7 @@ I’m actively seeking opportunities—**internships or full-time roles**—in c
 
 If you're hiring, mentoring, or looking to collaborate on security projects, feel free to reach out!
 
-- 📍 **Location**: Biswanath, Assam, India  
+- 📍 **Location**: Electronic city, Bengaluru, Karnataka, India 
 - 🔗 **LinkedIn**: www.linkedin.com/in/shewag-bhattarai-103424236
 - 📧 **Email**: bhattaraishewag178@gmail.com 
 
